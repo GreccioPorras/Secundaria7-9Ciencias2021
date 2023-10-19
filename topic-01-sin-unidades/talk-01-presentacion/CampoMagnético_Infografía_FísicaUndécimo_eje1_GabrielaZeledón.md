@@ -1,0 +1,2 @@
+Inforgrafía campo magnético Gabriela Zeledón
+CampoMagnético_Infografía_FísicaUndécimo_eje1_GabrielaZeledón
