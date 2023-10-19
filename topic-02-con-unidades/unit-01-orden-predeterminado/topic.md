@@ -1,1 +1,0 @@
-Unidad con orden predeterminado
